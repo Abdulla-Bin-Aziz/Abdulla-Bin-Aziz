@@ -1,4 +1,4 @@
-# Hi, I'm Abdullah Arman 👋
+# Hi, I'm Abdulla Aziz 👋
 #### I am Web Developer
 I’m a Front End Web developer passionate about making error-free websites with 100% client satisfaction. I love to solve real-world problems. I am strategic and goal-oriented, and I always work with an end goal in mind. I pride myself on doing quality work and maintaining excellent communication. 
 
